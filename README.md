@@ -18,7 +18,8 @@
 - Learning Full-Stack Development
 
 ### 📫 Connect with me
-- LinkedIn: [Your LinkedIn]
-- Email: your.email@gmail.com
+- Instagram: https://www.instagram.com/tuvwxyzaky_?dlrf=MXA4ZXNtYWZlN2F2MQ==
+- Email: your.teukuzakyfarhani@gmail.com
+- whatsapp: http://wa.me/62895351478774
 
 > "Code. Design. Repeat."
